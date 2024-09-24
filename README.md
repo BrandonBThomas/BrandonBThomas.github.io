@@ -14,5 +14,5 @@ For the past four years I have been a competitive Ninja Warrior competitor. In t
 
 While I only competed as a pro for one of those competitions, all of these have been my **_World Finals apperances_**. Those competitions gave me the confidence I needed to apply for _American Ninja Warrior Season 15_. To my suprise, I got invited to compete on the show that year. Even though it was my rookie season I made it past the **_Qualifiers_**, hit a buzzer in the **_Semi Finals_**, my season did eventually end in Las Vegas on Stage One of the **_National Finals_**.
 ## Websites I Recommend
-	- [Solitaire](https://solitaired.com/) - This website help me keep my mind active in the middle of the night while I was preparing for American Ninja Warrior with multiple different card strategy games.
-	-  - This website has many different songs to learn how to play. While this is mainly for guitar, they have songs for musicians of all skill levels and the chords/tablature to go with it.
+	-  - This website help me keep my mind active in the middle of the night while I was preparing for American Ninja Warrior with multiple different card strategy games.
+	- [Ultimate Guitar](https://www.ultimate-guitar.com/) - This website has many different songs to learn how to play. While this is mainly for guitar, they have songs for musicians of all skill levels and the chords/tablature to go with it.
