@@ -14,3 +14,4 @@ While I only competed as a pro for one of those competitions, all of these have 
 ##Websites I Recommend
 	- [Solitaire](https://solitaired.com/) - This website help me keep my mind active in the middle of the night while I was preparing for American Ninja Warrior with multiple different card strategy games.
 	- [Ultimate Guitar](https://www.ultimate-guitar.com/) - This website has many different songs to learn how to play. While this is mainly for guitar, they have songs for musicians of all skill levels and the chords/tablature to go with it.
+help
